@@ -1,4 +1,4 @@
-# Hi, I'm Odisseas. 👋
+# Hi, I'm Odysseas MK. 👋
 
 I love building nice things that actually help people. Always trying to keep things **simple, practical, and honest.** I don't like over-complicating projects with "fancy" words or unnecessary tech.
 
